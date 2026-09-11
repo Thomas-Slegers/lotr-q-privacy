@@ -42,4 +42,4 @@ We may update this policy from time to time. Changes will be reflected by updati
 
 If you have questions about this privacy policy or your data, contact:
 
-**[jouw-e-mailadres-hier]**
+**Thomsleg2@gmail.com**
